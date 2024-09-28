@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Suhani-006
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning CSE
+- 📫 How to reach me FOLLOW ME ON LINKEDIN @suhani-vataliya
+- 😄 Pronouns: soo-HAH-nee
